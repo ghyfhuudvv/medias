@@ -1,8 +1,8 @@
 Uncrowned has Keith Thurman vs. Brock Jarvis live results, round-by-round updates, highlights, ring walks and start time for the Thurman vs. Jarvis fight card on Wednesday morning at the Hordern Pavilion in Sydney, New South Wales, Australia. Former unified welterweight champion Thurman makes his unexpected return against Jarvis in a crossroads clash at super welterweight in the main event.
 
-🅻🅸🆅🅴🔴▶️ CLICK HERE TO WATCH LIVE ONLINE
+**[🅻🅸🆅🅴🔴▶️ CLICK HERE TO WATCH LIVE ONLINE](https://t.co/eVlU2aQPpZ)**
 
-🆆🅰🆃🅲🅷🔴▶️ CLICK HERE TO LIVE STREAM
+**[🆆🅰🆃🅲🅷🔴▶️ CLICK HERE TO LIVE STREAM](https://t.co/eVlU2aQPpZ)**
 
 Thurman (30-1-1, 22 KOs) won the secondary WBA welterweight title in 2015 and was upgraded to full champion before beating Shawn Porter in 2016. The American edged Danny Garcia in a WBA/WBC unification bout the following year, which was watched by more than 5 million viewers on CBS, making it at the time the most-viewed boxing broadcast in the U.S. in almost 20 years.
 
